@@ -1,5 +1,8 @@
 # Discord .webm crash generator :trollface:
 
+🥶I FOLLOW DISCORD TOS NO TERM PLEASE🥶
+disclaimer: if you get banned or muted or whatever its not my fault you're stupid
+
 ## Frequently asked questions
 > How to use?
 
